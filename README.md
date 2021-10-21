@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LadyLixieLabs or Halle (holly)!
+- 👀 I’m interested in Artistic Electronics and 3D printing!
+- 🌱 I’m currently learning everything! I'm Lixie Labs partner and he is teaching me everything I know!
+- 📫 How to reach me! Twitter @ladylixielabs Instagram @hallerasmussen and @bloomingsmoke or email hallerasmussen@gmail.com!
